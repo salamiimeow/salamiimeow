@@ -7,4 +7,4 @@
 ɪɴᴛ: ʟᴜᴄɪʟɪᴛʜ,, ʀᴀᴅɪᴏsɪʟᴇɴᴄᴇ,, ɢʀᴇᴇᴋ ᴍʏᴛʜᴏs,, ᴛʜᴇᴏʟᴏɢʏ/ᴅᴇᴍᴏɴᴏʟᴏɢʏ ɴᴇʀᴅs,,
 
 ɪᴡᴄ: ʜᴇʟʟᴀᴠᴇʀsᴇ ғᴀɴᴅᴏᴍ,, ʀᴀᴅɪᴏsᴛᴀᴛɪᴄ,,
-![lucilith3](https://github.com/user-attachments/assets/aa2bbe24-b3a3-49b3-ba34-e600824274f0)
+![lucilith2](https://github.com/user-attachments/assets/30b249a0-2a4f-4203-9836-1f176b993056)
