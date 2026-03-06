@@ -2,14 +2,16 @@
 
 ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ 
 
- ˗ˏˋ 𝙖𝙗𝙤𝙪𝙩 𝙢𝙚 ˎˊ˗
+ ˗ˏˋ  𝙖𝙗𝙤𝙪𝙩 𝙢𝙚  ˎˊ˗
  
 ִ18yrs | Jan 11th,,08
+
+  Athiest 
 ____________________
 
 INT : Mytho | Theology Nerds ,, Cult of The Lamb Fndm ,, E:TM Fndm ,, FNaF Fndm ,, CRK Fndm ,, IDV Fndm ,, 
 
-IWC : Comshippers ,, 
+IWC : Hellaverse Fndm ,, Comshippers ,, 
 
 DNI : Evangelists ,, Religious Extremists ,, Proshippers ,,
 ____________________
