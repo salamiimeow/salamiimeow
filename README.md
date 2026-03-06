@@ -14,7 +14,7 @@ ____________________
 
 INT : Mytho | Theology Nerds ,, Cult of The Lamb Fndm ,, E:TM Fndm ,, FNaF Fndm ,, CRK Fndm ,, IDV Fndm ,, Satanists ,, Pagans | Hellenists ,, 
 
-IWC : Christians | Catholics ,, Hellaverse Fndm ,, Comshippers ,, 
+IWC : Christians | Catholics ,, Hellaverse Fndm ,,  
 
 DNI : Evangelists | Apostolic Pentecostals ,, Religious Extremists ,, Right-Wingers ,, MAGA ,, PRO-I.C.E ,, ANTI-Abortion (you're basically against female autonomy. think.) ,, Proshippers ,, ,,
 ____________________
