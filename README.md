@@ -16,7 +16,7 @@ INT : Mytho | Theology Nerds ,, Cult of The Lamb Fndm ,, E:TM Fndm ,, FNaF Fndm 
 
 IWC : Hellaverse Fndm ,, Comshippers ,, 
 
-DNI : Evangelists ,, Religious Extremists ,, Proshippers ,,
+DNI : Evangelists | Apostolic Pentecostals ,, Religious Extremists ,, Right-Wingers ,, MAGA,, PRO-I.C.E,, ANTI-Abortion (ur basically against female autonomy!),, Proshippers ,,
 ____________________
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+* 
