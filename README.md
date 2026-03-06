@@ -19,6 +19,8 @@ IWC : Christians | Catholics ,, Hellaverse Fndm ,,
 DNI : Evangelists | Apostolic Pentecostals ,, Religious Extremists ,, Right-Wingers ,, MAGA ,, PRO-I.C.E ,, ANTI-Abortion (you're basically against female autonomy. think.) ,, Proshippers ,, ,,
 ____________________
 
+𝙍𝙀𝘼𝘿 𝘽𝙀𝙇𝙊𝙒 !! 𝙃𝙖𝙨 𝙩𝙝𝙚 𝙤𝙥𝙞𝙣𝙞𝙤𝙣𝙨 𝙤𝙛 𝙨𝙝𝙞𝙥𝙨 𝙛𝙤𝙧 𝙩𝙝𝙚 𝙛𝙣𝙙𝙢𝙨 𝙄'𝙢 𝙞𝙣 !! ⁀➷
+
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+* 
 
 .ೃ࿔ "𝔖𝔥𝔢 𝔥𝔞𝔰 𝔠𝔬𝔪𝔢 𝔣𝔯𝔬𝔪 𝔱𝔥𝔢 𝔡𝔦𝔰𝔱𝔞𝔫𝔠𝔢 𝔰𝔱𝔞𝔯𝔰, 𝔱𝔬 𝔱𝔞𝔨𝔢 𝔶𝔬𝔲𝔯 𝔥𝔢𝔞𝔯𝔱, 𝔱𝔬 𝔟𝔯𝔢𝔞𝔨 𝔶𝔬𝔲𝔯 𝔥𝔢𝔞𝔯𝔱. . ."
