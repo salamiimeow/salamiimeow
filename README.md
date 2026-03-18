@@ -6,7 +6,7 @@
  
 ִ18yrs | Jan 11th ,, 08
 
-⊹⛧ Athiest 
+⊹⛧ Atheist 
 ____________________
 
 𝙉𝙊𝙏𝙀 !! 𝙋𝙇𝙎 𝙍𝙀𝘼𝘿 !! I'm an athiest for comfort. I grew up in a pentecostal church (specifically Apostolic Pentecostalism disguised as modern Pentecostalism) and I am triggered by genuine praise of God / threats of Divine Punishment. I am interested in the Bible, Torah, Quran, Etc (+ all myths related) in a "fictional" storybook type way. 𝙎𝙤, 𝙄 𝙬𝙞𝙨𝙝 𝙩𝙤 𝙖𝙥𝙤𝙡𝙤𝙜𝙞𝙯𝙚 𝙞𝙛 𝙄 𝙘𝙤𝙢𝙚 𝙤𝙛𝙛 𝙖𝙨 𝙧𝙪𝙙𝙚 𝙤𝙧 𝙖𝙣𝙩𝙞-𝙘𝙝𝙧𝙞𝙨𝙩𝙞𝙖𝙣. As a coping mechanism I refer to God / Satan / Jesus / Etc as "𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨." But I try to refrain from doing that in public. In sort, 𝙇𝙚𝙩 𝙢𝙚 𝙠𝙣𝙤𝙬 𝙞𝙛 𝙄 𝙘𝙤𝙢𝙚 𝙤𝙛𝙛 𝙖𝙨 𝙧𝙪𝙙𝙚/𝙞𝙣𝙨𝙚𝙣𝙨𝙞𝙩𝙞𝙫𝙚!
