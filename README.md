@@ -16,7 +16,7 @@ INT : Mytho | Theology Nerds ,, Cult of The Lamb Fndm ,, FNaF Fndm ,, CRK Fndm ,
 
 IWC : Christians | Catholics ,, Hellaverse Fndm ,, E:TM Fndm ,, PJO Fndm ,,
 
-DNI : Evangelists | Apostolic Pentecostals ,, Religious Extremists ,, Right-Wingers ,, MAGA ,, PRO-I.C.E ,, ANTI-Abortion (you're basically against female autonomy. think.) ,, Proshippers ,, ,,
+DNI : Evangelists | Apostolic Pentecostals ,, Religious Extremists ,, Right-Wingers ,, MAGA ,, PRO-I.C.E ,, ANTI-Abortion ,, Proshippers ,,
 ____________________
 
 𝙍𝙀𝘼𝘿 𝘽𝙀𝙇𝙊𝙒 !! 𝙃𝙖𝙨 𝙩𝙝𝙚 𝙤𝙥𝙞𝙣𝙞𝙤𝙣𝙨 𝙤𝙛 𝙨𝙝𝙞𝙥𝙨 𝙛𝙤𝙧 𝙩𝙝𝙚 𝙛𝙣𝙙𝙢𝙨 𝙄'𝙢 𝙞𝙣 !! ⁀➷
