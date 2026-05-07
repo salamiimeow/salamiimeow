@@ -1,5 +1,5 @@
 .ೃ࿔ "♫ Tear off their wings and make 'em dresses ♫. . ."
-<img width="700" height="700" alt="203f47d2efda2bc71022a69c0b558ec6" src="https://github.com/user-attachments/assets/d11c16d6-baf3-4a2f-a73c-58df16a1834a" />
+<img width="700" height="600" alt="203f47d2efda2bc71022a69c0b558ec6" src="https://github.com/user-attachments/assets/d11c16d6-baf3-4a2f-a73c-58df16a1834a" />
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*
 
