@@ -27,4 +27,5 @@ ____________________
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+* 
 <img width="500" height="300" alt="342f7a79bf2f9364a35c63a8b2ac25c1" src="https://github.com/user-attachments/assets/70290a08-7333-4d4a-b2bd-faa8c1106fc1" />
+
 .ೃ࿔ "♫ It'll be so nice in paradise ♫. . ."
