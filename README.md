@@ -11,6 +11,7 @@
 ִ18yrs | Jan 11th ,, 08
 
  ˗ˏˋ Special interest atm ˎˊ˗
+ 
        ꒰ა GOOD OMENS ໒꒱
 
 ⊹⛧ Atheist 
