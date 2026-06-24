@@ -10,7 +10,7 @@
  
 ִ18yrs | Jan 11th ,, 08
 
- ˗ˏˋ Special interest atm  ➛  ꒰ა GOOD OMENS ໒꒱ ˎˊ˗
+ ˗ˏˋ Special interest atm  ➛  ꒰ა Jurassic park/world ໒꒱ ˎˊ˗
 
 ⊹⛧ Atheist 
 ____________________
