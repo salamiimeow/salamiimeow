@@ -10,7 +10,7 @@
  
 ִ18yrs | Jan 11th ,, 08
 
- ˗ˏˋ Special interest atm  ➛  ꒰ა Jurassic park/world ໒꒱ ˎˊ˗
+ ˗ˏˋ Special interest atm  ➛  ꒰ა spinosaurus hi hi hi ໒꒱ ˎˊ˗
 
 ⊹⛧ Atheist 
 ____________________
