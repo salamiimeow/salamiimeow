@@ -1,5 +1,5 @@
 .ೃ࿔ "♫ Tear off their wings and make 'em dresses ♫. . ."
-<img width="750" height="400" alt="794420502d7c44c3882df2aeadcae290" src="https://github.com/user-attachments/assets/7a51de47-4515-4125-bd5f-5005790ebed1" />
+<img width="750" height="450" alt="794420502d7c44c3882df2aeadcae290" src="https://github.com/user-attachments/assets/7a51de47-4515-4125-bd5f-5005790ebed1" />
 
 
 
@@ -27,6 +27,6 @@ ____________________
 𝙍𝙀𝘼𝘿 𝘽𝙀𝙇𝙊𝙒 !! 𝙃𝙖𝙨 𝙩𝙝𝙚 𝙤𝙥𝙞𝙣𝙞𝙤𝙣𝙨 𝙤𝙛 𝙨𝙝𝙞𝙥𝙨 𝙛𝙤𝙧 𝙩𝙝𝙚 𝙛𝙣𝙙𝙢𝙨 𝙄'𝙢 𝙞𝙣 !! ⁀➷
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+* 
-<img width="736" height="792" alt="b749d9c73d3b527f1869fd36610eec8b" src="https://github.com/user-attachments/assets/fe7dae5b-a6db-4401-bea4-1045f264a6dd" />
+<img width="500" height="500" alt="b749d9c73d3b527f1869fd36610eec8b" src="https://github.com/user-attachments/assets/fe7dae5b-a6db-4401-bea4-1045f264a6dd" />
 
 .ೃ࿔ "♫ It'll be so nice in paradise ♫. . ."
