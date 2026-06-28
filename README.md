@@ -27,6 +27,6 @@ ____________________
 𝙍𝙀𝘼𝘿 𝘽𝙀𝙇𝙊𝙒 !! 𝙃𝙖𝙨 𝙩𝙝𝙚 𝙤𝙥𝙞𝙣𝙞𝙤𝙣𝙨 𝙤𝙛 𝙨𝙝𝙞𝙥𝙨 𝙛𝙤𝙧 𝙩𝙝𝙚 𝙛𝙣𝙙𝙢𝙨 𝙄'𝙢 𝙞𝙣 !! ⁀➷
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+* 
-<img width="500" height="300" alt="342f7a79bf2f9364a35c63a8b2ac25c1" src="https://github.com/user-attachments/assets/70290a08-7333-4d4a-b2bd-faa8c1106fc1" />
+<img width="736" height="792" alt="b749d9c73d3b527f1869fd36610eec8b" src="https://github.com/user-attachments/assets/fe7dae5b-a6db-4401-bea4-1045f264a6dd" />
 
 .ೃ࿔ "♫ It'll be so nice in paradise ♫. . ."
