@@ -1,5 +1,5 @@
 .ೃ࿔ "♫ ᴀʟʟ ɪ ᴡᴀɴᴛ ɪꜱ ᴛᴏ ꜰʟʏ ᴡɪᴛʜ ʏᴏᴜ, ᴀʟʟ ɪ ᴡᴀɴᴛ ɪꜱ ᴛᴏ ꜰᴀʟʟ ᴡɪᴛʜ ʏᴏᴜ. ꜱᴏ ᴊᴜꜱᴛ ɢɪᴠᴇ ᴍᴇ ᴀʟʟ ᴏꜰ ʏᴏᴜ ♫. . ."
-<img width="600" height="500" alt="97bf96e056385157ef276ae8d7c70e82 (1)" src="https://github.com/user-attachments/assets/9654d5ed-0b73-468a-adb8-dc3817c54e73" />
+<img width="800" height="500" alt="97bf96e056385157ef276ae8d7c70e82 (1)" src="https://github.com/user-attachments/assets/9654d5ed-0b73-468a-adb8-dc3817c54e73" />
 
 
 
