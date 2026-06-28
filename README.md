@@ -1,5 +1,5 @@
 .ೃ࿔ "♫ ᴀʟʟ ɪ ᴡᴀɴᴛ ɪꜱ ᴛᴏ ꜰʟʏ ᴡɪᴛʜ ʏᴏᴜ, ᴀʟʟ ɪ ᴡᴀɴᴛ ɪꜱ ᴛᴏ ꜰᴀʟʟ ᴡɪᴛʜ ʏᴏᴜ. ꜱᴏ ᴊᴜꜱᴛ ɢɪᴠᴇ ᴍᴇ ᴀʟʟ ᴏꜰ ʏᴏᴜ ♫. . ."
-<img width="800" height="500" alt="97bf96e056385157ef276ae8d7c70e82 (1)" src="https://github.com/user-attachments/assets/9654d5ed-0b73-468a-adb8-dc3817c54e73" />
+<img width="736" height="414" alt="20a5258320dead3d3f0e197fd48ef67a" src="https://github.com/user-attachments/assets/66a6615e-ca1b-4cf9-83f8-14a39ed096db" />
 
 
 
@@ -27,6 +27,7 @@ ____________________
 𝙍𝙀𝘼𝘿 𝘽𝙀𝙇𝙊𝙒 !! 𝙃𝙖𝙨 𝙩𝙝𝙚 𝙤𝙥𝙞𝙣𝙞𝙤𝙣𝙨 𝙤𝙛 𝙨𝙝𝙞𝙥𝙨 𝙛𝙤𝙧 𝙩𝙝𝙚 𝙛𝙣𝙙𝙢𝙨 𝙄'𝙢 𝙞𝙣 !! ⁀➷
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+* 
-<img width="600" height="450" alt="33297c7bdf2bffb063ba8ccd147fec48" src="https://github.com/user-attachments/assets/42556871-1ebc-4757-9458-aa7dcdfd2ab9" />
+<img width="597" height="407" alt="235757b82d38382d16a124fe314bbc59" src="https://github.com/user-attachments/assets/c6adb0fd-a637-4e44-a073-1a5209f3c3ce" />
+
 
 .ೃ࿔ "♫ ɪᴛ ꜰᴇᴇʟꜱ ɪᴍᴘᴏꜱꜱɪʙʟᴇ. ɪᴛ'ꜱ ɴᴏᴛ ɪᴍᴘᴏꜱꜱɪʙʟᴇ, ɪꜱ ɪᴛ ɪᴍᴘᴏꜱꜱɪʙʟᴇ? ꜱᴀʏ ᴛʜᴀᴛ ɪᴛ'ꜱ ᴘᴏꜱꜱɪʙʟᴇ! ♫. . ."
