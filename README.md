@@ -1,6 +1,5 @@
 .ೃ࿔ "♫ Tear off their wings and make 'em dresses ♫. . ."
-<img width="560" height="400" alt="960654804e109b0ffc2a7b4c0fb55312" src="https://github.com/user-attachments/assets/9e392dc5-110d-41f1-a124-a3bc63ab2177" />
-
+<img width="560" height="400" alt="794420502d7c44c3882df2aeadcae290" src="https://github.com/user-attachments/assets/7a51de47-4515-4125-bd5f-5005790ebed1" />
 
 
 
@@ -10,7 +9,7 @@
  
 ִ18yrs | Jan 11th ,, 08
 
- ˗ˏˋ Special interest atm  ➛  ꒰ა spinosaurus hi hi hi ໒꒱ ˎˊ˗
+ ˗ˏˋ Special interest atm  ➛  ꒰ა Jewish Mythos ໒꒱ ˎˊ˗
 
 ⊹⛧ Atheist 
 ____________________
