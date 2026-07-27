@@ -1,5 +1,5 @@
 .ೃ࿔ "♫ ʙʀᴏᴜɢʜᴛ ᴛᴏ ʟɪꜰᴇ, ɪ ᴡᴀᴛᴄʜ ᴀɴᴅ ᴡᴀɪᴛ. ɪ’ᴍ ᴛʜᴇ ᴍᴏɴꜱᴛᴇʀ ʏᴏᴜ ᴄʀᴇᴀᴛᴇ ♫. . ."
-<img width="500" height="350" alt="8120924a5f37dc60192c1f12d1709e7f" src="https://github.com/user-attachments/assets/07755538-d43d-497d-b8cb-545c005ac5f5" />
+<img width="450" height="318" alt="tumblr_mad45eYAGT1qlctl1o1_500" src="https://github.com/user-attachments/assets/5fba4421-30cc-4a4f-9af6-5ab7056cb4f0" />
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*
 
