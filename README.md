@@ -1,4 +1,4 @@
-.ೃ࿔ "♫ ʙʀᴏᴜɢʜᴛ ᴛᴏ ʟɪꜰᴇ, ɪ ᴡᴀᴛᴄʜ ᴀɴᴅ ᴡᴀɪᴛ. ɪ’ᴍ ᴛʜᴇ ᴍᴏɴꜱᴛᴇʀ ʏᴏᴜ ᴄʀᴇᴀᴛᴇ ♫. . ."
+.ೃ࿔ "♫ 𝕭𝖗𝖔𝖚𝖌𝖍𝖙 𝖙𝖔 𝖑𝖎𝖋𝖊, 𝕴 𝖜𝖆𝖙𝖈𝖍 𝖆𝖓𝖉 𝖜𝖆𝖎𝖙. 𝕴'𝖒 𝖙𝖍𝖊 𝖒𝖔𝖓𝖘𝖙𝖊𝖗 𝖞𝖔𝖚 𝖈𝖗𝖊𝖆𝖙𝖊 ♫. . ."
 
 <img width="450" height="318" alt="tumblr_mad45eYAGT1qlctl1o1_500" src="https://github.com/user-attachments/assets/5fba4421-30cc-4a4f-9af6-5ab7056cb4f0" />
 
@@ -6,21 +6,22 @@
 
  ˗ˏˋ  𝙖𝙗𝙤𝙪𝙩 𝙢𝙚  ˎˊ˗
  
-ִ18yrs | Jan 11th ,, 08
+ִ18ʏʀꜱ | ᴊᴀɴ 11ᴛʜ ,, 08
 
- ˗ˏˋ Special interest atm  ➛  ꒰ა Jewish Mythos ໒꒱ ˎˊ˗
+ ˗ˏˋ ꜱᴘᴇᴄɪᴀʟ ɪɴᴛᴇʀᴇꜱᴛ ᴀᴛᴍ  ➛  ꒰Ა ᴊᴇᴡɪꜱʜ ᴍʏᴛʜᴏꜱ ໒꒱ ˎˊ˗
 
 ⊹⛧ Atheist 
 ____________________
 
-𝙉𝙊𝙏𝙀 !! 𝙋𝙇𝙎 𝙍𝙀𝘼𝘿 !! I'm an atheist for comfort. I grew up in a pentecostal church (specifically Apostolic Pentecostalism disguised as modern Pentecostalism) and I am triggered by genuine praise of God / threats of Divine Punishment. I am interested in the Bible, Torah, Quran, Etc (+ all myths related) in a "fictional" storybook type way. 𝙎𝙤, 𝙄 𝙬𝙞𝙨𝙝 𝙩𝙤 𝙖𝙥𝙤𝙡𝙤𝙜𝙞𝙯𝙚 𝙞𝙛 𝙄 𝙘𝙤𝙢𝙚 𝙤𝙛𝙛 𝙖𝙨 𝙧𝙪𝙙𝙚 𝙤𝙧 𝙖𝙣𝙩𝙞-**_religion_**. As a coping mechanism I refer to God / Satan / Jesus / Etc as "𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨." But I try to refrain from doing that in public. Sooo, 𝙇𝙚𝙩 𝙢𝙚 𝙠𝙣𝙤𝙬 𝙞𝙛 𝙄 𝙘𝙤𝙢𝙚 𝙤𝙛𝙛 𝙖𝙨 𝙧𝙪𝙙𝙚/𝙞𝙣𝙨𝙚𝙣𝙨𝙞𝙩𝙞𝙫𝙚!
+𝙉𝙊𝙏𝙀 !! 𝙋𝙇𝙎 𝙍𝙀𝘼𝘿 !! ɪ'ᴍ ᴀɴ ᴀᴛʜᴇɪꜱᴛ ꜰᴏʀ ᴄᴏᴍꜰᴏʀᴛ. ɪ ɢʀᴇᴡ ᴜᴘ ɪɴ ᴀ ᴘᴇɴᴛᴇᴄᴏꜱᴛᴀʟ ᴄʜᴜʀᴄʜ (ꜱᴘᴇᴄɪꜰɪᴄᴀʟʟʏ ᴀᴘᴏꜱᴛᴏʟɪᴄ ᴘᴇɴᴛᴇᴄᴏꜱᴛᴀʟɪꜱᴍ ᴅɪꜱɢᴜɪꜱᴇᴅ ᴀꜱ ᴍᴏᴅᴇʀɴ ᴘᴇɴᴛᴇᴄᴏꜱᴛᴀʟɪꜱᴍ) ᴀɴᴅ ɪ ᴀᴍ ᴛʀɪɢɢᴇʀᴇᴅ ʙʏ ɢᴇɴᴜɪɴᴇ ᴘʀᴀɪꜱᴇ ᴏꜰ ɢᴏᴅ / ᴛʜʀᴇᴀᴛꜱ ᴏꜰ ᴅɪᴠɪɴᴇ ᴘᴜɴɪꜱʜᴍᴇɴᴛ. ɪ ᴀᴍ ɪɴᴛᴇʀᴇꜱᴛᴇᴅ ɪɴ ᴛʜᴇ ʙɪʙʟᴇ, ᴛᴏʀᴀʜ, Qᴜʀᴀɴ, ᴇᴛᴄ (+ ᴀʟʟ ᴍʏᴛʜꜱ ʀᴇʟᴀᴛᴇᴅ) ɪɴ ᴀ "ꜰɪᴄᴛɪᴏɴᴀʟ" ꜱᴛᴏʀʏʙᴏᴏᴋ ᴛʏᴘᴇ ᴡᴀʏ. 𝙎𝙤, 𝙄 𝙬𝙞𝙨𝙝 𝙩𝙤 𝙖𝙥𝙤𝙡𝙤𝙜𝙞𝙯𝙚 𝙞𝙛 𝙄 𝙘𝙤𝙢𝙚 𝙤𝙛𝙛 𝙖𝙨 𝙧𝙪𝙙𝙚 𝙤𝙧 𝙖𝙣𝙩𝙞-**_ʀᴇʟɪɢɪᴏɴ_**. ᴀꜱ ᴀ ᴄᴏᴘɪɴɢ ᴍᴇᴄʜᴀɴɪꜱᴍ ɪ ʀᴇꜰᴇʀ ᴛᴏ ɢᴏᴅ / ꜱᴀᴛᴀɴ / ᴊᴇꜱᴜꜱ / ᴇᴛᴄ ᴀꜱ "𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨." ʙᴜᴛ ɪ ᴛʀʏ ᴛᴏ ʀᴇꜰʀᴀɪɴ ꜰʀᴏᴍ ᴅᴏɪɴɢ ᴛʜᴀᴛ ɪɴ ᴘᴜʙʟɪᴄ. ꜱᴏᴏᴏ, 𝙇𝙚𝙩 𝙢𝙚 𝙠𝙣𝙤𝙬 𝙞𝙛 𝙄 𝙘𝙤𝙢𝙚 𝙤𝙛𝙛 𝙖𝙨 𝙧𝙪𝙙𝙚/𝙞𝙣𝙨𝙚𝙣𝙨𝙞𝙩𝙞𝙫𝙚!
 ____________________
 
-INT : Mytho | Theology Nerds ,, Good Omens Fndm ,, Cult of The Lamb Fndm ,, FNaF Fndm ,, CRK Fndm ,, IDV Fndm ,, Satanists ,, Witches ,, Pagans | Hellenists ,, 
+ɪɴᴛ : ᴍʏᴛʜᴏ | ᴛʜᴇᴏʟᴏɢʏ ɴᴇʀᴅꜱ, ɢᴏᴏᴅ ᴏᴍᴇɴꜱ ꜰɴᴅᴍ, ᴄᴜʟᴛ ᴏꜰ ᴛʜᴇ ʟᴀᴍʙ ꜰɴᴅᴍ, ꜰɴᴀꜰ ꜰɴᴅᴍ, ᴄʀᴋ ꜰɴᴅᴍ, ɪᴅᴠ ꜰɴᴅᴍ, ꜱᴀᴛᴀɴɪꜱᴛꜱ, ᴡɪᴛᴄʜᴇꜱ, ᴘᴀɢᴀɴꜱ | ʜᴇʟʟᴇɴɪꜱᴛꜱ
 
-IWC : Christians | Catholics ,, Hellaverse Fndm ,, E:TM Fndm ,, PJO Fndm ,,
+ɪᴡᴄ : ᴄʜʀɪꜱᴛɪᴀɴꜱ | ᴄᴀᴛʜᴏʟɪᴄꜱ, ʜᴇʟʟᴀᴠᴇʀꜱᴇ ꜰɴᴅᴍ, ᴇ:ᴛᴍ ꜰɴᴅᴍ, ᴘᴊᴏ ꜰɴᴅᴍ
 
-DNI : Evangelists | Apostolic Pentecostals ,, Diabolists ,, Religious Extremists ,, Conservatives on both ends ,, Pro-MAGA ,, Pro-ICE ,, Anti-Feminism ,, Proshippers ,, "It's not real/It's just fiction," to defend themes of incest, SA, abuse, etc... ,, "I HATE (animal)" ,, Those who choose to not listen/understand an animals discomfort ,, Those who kill small "insignificant" animals because it's "funny"/"edgy" 🖕 ,,
+ᴅɴɪ : ᴇᴠᴀɴɢᴇʟɪꜱᴛꜱ | ᴀᴘᴏꜱᴛᴏʟɪᴄ ᴘᴇɴᴛᴇᴄᴏꜱᴛᴀʟꜱ, ᴅɪᴀʙᴏʟɪꜱᴛꜱ, ʀᴇʟɪɢɪᴏᴜꜱ ᴇxᴛʀᴇᴍɪꜱᴛꜱ, ᴄᴏɴꜱᴇʀᴠᴀᴛɪᴠᴇꜱ ᴏɴ ʙᴏᴛʜ ᴇɴᴅꜱ, ᴘʀᴏ-ᴍᴀɢᴀ, ᴘʀᴏ-ɪᴄᴇ, ᴀɴᴛɪ-ꜰᴇᴍɪɴɪꜱᴍ, ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ, "ɪᴛ'ꜱ ɴᴏᴛ ʀᴇᴀʟ/ɪᴛ'ꜱ ᴊᴜꜱᴛ ꜰɪᴄᴛɪᴏɴ," ᴛᴏ ᴅᴇꜰᴇɴᴅ ᴛʜᴇᴍᴇꜱ ᴏꜰ ɪɴᴄᴇꜱᴛ, ꜱᴀ, ᴀʙᴜꜱᴇ, ᴇᴛᴄ, ᴛʜᴏꜱᴇ ᴡʜᴏ ᴄʜᴏᴏꜱᴇ ᴛᴏ ɴᴏᴛ ʟɪꜱᴛᴇɴ/ᴜɴᴅᴇʀꜱᴛᴀɴᴅ ᴀɴ ᴀɴɪᴍᴀʟꜱ ᴅɪꜱᴄᴏᴍꜰᴏʀᴛ, ᴛʜᴏꜱᴇ ᴡʜᴏ ᴋɪʟʟ ꜱᴍᴀʟʟ "ɪɴꜱɪɢɴɪꜰɪᴄᴀɴᴛ" ᴀɴɪᴍᴀʟꜱ ʙᴇᴄᴀᴜꜱᴇ ɪᴛ'ꜱ "ꜰᴜɴɴʏ"/"ᴇᴅɢʏ" 🖕
+
 ____________________
 
 𝙍𝙀𝘼𝘿 𝘽𝙀𝙇𝙊𝙒 !! 𝙃𝙖𝙨 𝙩𝙝𝙚 𝙤𝙥𝙞𝙣𝙞𝙤𝙣𝙨 𝙤𝙛 𝙨𝙝𝙞𝙥𝙨 𝙛𝙤𝙧 𝙩𝙝𝙚 𝙛𝙣𝙙𝙢𝙨 𝙄'𝙢 𝙞𝙣 !! ⁀➷
@@ -28,4 +29,4 @@ ____________________
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+* 
 <img width="612" height="330" alt="miche06c" src="https://github.com/user-attachments/assets/0bc37537-e1a5-4881-a6ae-d90d055d5759" />
 
-.ೃ࿔ "♫ ᴄʜᴀɴɢᴇᴅ ʏᴏᴜʀ ᴍɪɴᴅ ᴀ ʙɪᴛ ᴛᴏᴏ ʟᴀᴛᴇ. ᴀʀᴇ ʏᴏᴜ ᴀꜰʀᴀɪᴅ? ♫. . ."
+.ೃ࿔ "♫ 𝕮𝖍𝖆𝖓𝖌𝖊𝖉 𝖞𝖔𝖚𝖗 𝖒𝖎𝖓𝖉 𝖆 𝖇𝖎𝖙 𝖙𝖔𝖔 𝖑𝖆𝖙𝖊. 𝕬𝖗𝖊 𝖞𝖔𝖚 𝖆𝖋𝖗𝖆𝖎𝖉? ♫. . ."
