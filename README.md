@@ -28,6 +28,6 @@ ____________________
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+* 
 
-<video src="https://github.com/user-attachments/assets/1a420829-583a-45d1-9561-472f0a9c32ae" width="200" controls></video>
+<video src="https://github.com/user-attachments/assets/1a420829-583a-45d1-9561-472f0a9c32ae" width="200" height="200" controls></video>
 
 .ೃ࿔ "♫ 𝕮𝖍𝖆𝖓𝖌𝖊𝖉 𝖞𝖔𝖚𝖗 𝖒𝖎𝖓𝖉 𝖆 𝖇𝖎𝖙 𝖙𝖔𝖔 𝖑𝖆𝖙𝖊. 𝕬𝖗𝖊 𝖞𝖔𝖚 𝖆𝖋𝖗𝖆𝖎𝖉? ♫. . ."
