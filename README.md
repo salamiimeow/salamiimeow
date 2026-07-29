@@ -1,6 +1,6 @@
 .ೃ࿔ "♫ 𝕭𝖗𝖔𝖚𝖌𝖍𝖙 𝖙𝖔 𝖑𝖎𝖋𝖊, 𝕴 𝖜𝖆𝖙𝖈𝖍 𝖆𝖓𝖉 𝖜𝖆𝖎𝖙. 𝕴'𝖒 𝖙𝖍𝖊 𝖒𝖔𝖓𝖘𝖙𝖊𝖗 𝖞𝖔𝖚 𝖈𝖗𝖊𝖆𝖙𝖊 ♫. . ."
 
-<img width="735" height="854" alt="910dc7015d1b51d3b4503f0d976859a5" src="https://github.com/user-attachments/assets/2082624e-9614-485a-ab78-ffa5dacd7478" />
+<img width="440" height="600" alt="910dc7015d1b51d3b4503f0d976859a5" src="https://github.com/user-attachments/assets/2082624e-9614-485a-ab78-ffa5dacd7478" />
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*
 
