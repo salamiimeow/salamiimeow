@@ -1,6 +1,6 @@
 .ೃ࿔ "♫ 𝕭𝖗𝖔𝖚𝖌𝖍𝖙 𝖙𝖔 𝖑𝖎𝖋𝖊, 𝕴 𝖜𝖆𝖙𝖈𝖍 𝖆𝖓𝖉 𝖜𝖆𝖎𝖙. 𝕴'𝖒 𝖙𝖍𝖊 𝖒𝖔𝖓𝖘𝖙𝖊𝖗 𝖞𝖔𝖚 𝖈𝖗𝖊𝖆𝖙𝖊 ♫. . ."
 
-<img width="410" height="480" alt="910dc7015d1b51d3b4503f0d976859a5" src="https://github.com/user-attachments/assets/2082624e-9614-485a-ab78-ffa5dacd7478" />
+<img width="410" height="460" alt="910dc7015d1b51d3b4503f0d976859a5" src="https://github.com/user-attachments/assets/2082624e-9614-485a-ab78-ffa5dacd7478" />
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*
 
@@ -28,6 +28,6 @@ ____________________
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+* 
 
-<video src="https://github.com/user-attachments/assets/1a420829-583a-45d1-9561-472f0a9c32ae" width="200" height="100" controls></video>
+<video width="200" height="100" src="https://github.com/user-attachments/assets/1a420829-583a-45d1-9561-472f0a9c32ae" controls></video>
 
 .ೃ࿔ "♫ 𝕮𝖍𝖆𝖓𝖌𝖊𝖉 𝖞𝖔𝖚𝖗 𝖒𝖎𝖓𝖉 𝖆 𝖇𝖎𝖙 𝖙𝖔𝖔 𝖑𝖆𝖙𝖊. 𝕬𝖗𝖊 𝖞𝖔𝖚 𝖆𝖋𝖗𝖆𝖎𝖉? ♫. . ."
