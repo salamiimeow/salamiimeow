@@ -1,6 +1,6 @@
 .ೃ࿔ "♫ 𝕭𝖗𝖔𝖚𝖌𝖍𝖙 𝖙𝖔 𝖑𝖎𝖋𝖊, 𝕴 𝖜𝖆𝖙𝖈𝖍 𝖆𝖓𝖉 𝖜𝖆𝖎𝖙. 𝕴'𝖒 𝖙𝖍𝖊 𝖒𝖔𝖓𝖘𝖙𝖊𝖗 𝖞𝖔𝖚 𝖈𝖗𝖊𝖆𝖙𝖊 ♫. . ."
 
-<img width="450" height="318" alt="tumblr_mad45eYAGT1qlctl1o1_500" src="https://github.com/user-attachments/assets/5fba4421-30cc-4a4f-9af6-5ab7056cb4f0" />
+<img width="735" height="854" alt="910dc7015d1b51d3b4503f0d976859a5" src="https://github.com/user-attachments/assets/2082624e-9614-485a-ab78-ffa5dacd7478" />
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*
 
@@ -27,6 +27,7 @@ ____________________
 𝙍𝙀𝘼𝘿 𝘽𝙀𝙇𝙊𝙒 !! 𝙃𝙖𝙨 𝙩𝙝𝙚 𝙤𝙥𝙞𝙣𝙞𝙤𝙣𝙨 𝙤𝙛 𝙨𝙝𝙞𝙥𝙨 𝙛𝙤𝙧 𝙩𝙝𝙚 𝙛𝙣𝙙𝙢𝙨 𝙄'𝙢 𝙞𝙣 !! ⁀➷
 
 +:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+*━━━*+:★:+* 
-<img width="612" height="330" alt="miche06c" src="https://github.com/user-attachments/assets/0bc37537-e1a5-4881-a6ae-d90d055d5759" />
+
+https://github.com/user-attachments/assets/afee80fd-7920-4271-ac88-f083eb2eb205
 
 .ೃ࿔ "♫ 𝕮𝖍𝖆𝖓𝖌𝖊𝖉 𝖞𝖔𝖚𝖗 𝖒𝖎𝖓𝖉 𝖆 𝖇𝖎𝖙 𝖙𝖔𝖔 𝖑𝖆𝖙𝖊. 𝕬𝖗𝖊 𝖞𝖔𝖚 𝖆𝖋𝖗𝖆𝖎𝖉? ♫. . ."
