@@ -1,7 +1,7 @@
 
 ꒰ঌ゛꒰"♫ **_ᴄʟᴀꜱᴘɪɴɢ ʜᴀɴᴅꜱ, ᴅᴀɴᴄɪɴɢ ɪɴ ᴛᴇᴍᴘᴏ. ʙᴜᴛ ᴛʜᴇʀᴇ'ꜱ ɴᴏ ᴍᴜꜱɪᴄ, ᴊᴜꜱᴛ ᴏᴜʀ ᴍᴇᴀᴅᴏᴡ_** ♫. . ."꒱ ᯓ★
 
-<img width="736" height="400" alt="bd3d0d4743094fcb00ded1a70fb49014" src="https://github.com/user-attachments/assets/d89b8a5c-eeff-4a43-8edd-8c855a150848" />
+<img width="736" height="430" alt="bd3d0d4743094fcb00ded1a70fb49014" src="https://github.com/user-attachments/assets/d89b8a5c-eeff-4a43-8edd-8c855a150848" />
 
 
 ╔══════════════════════════༻🌑⭑🌒⭑🌓✶🌔✮🌕✮🌖✶🌗⭑🌘⭑🌑༺══════════════════════════╗
