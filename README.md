@@ -1,7 +1,7 @@
 
 ꒰ঌ゛꒰"♫ **_ᴄʟᴀꜱᴘɪɴɢ ʜᴀɴᴅꜱ, ᴅᴀɴᴄɪɴɢ ɪɴ ᴛᴇᴍᴘᴏ. ʙᴜᴛ ᴛʜᴇʀᴇ'ꜱ ɴᴏ ᴍᴜꜱɪᴄ, ᴊᴜꜱᴛ ᴏᴜʀ ᴍᴇᴀᴅᴏᴡ_** ♫. . ."꒱ ᯓ★
 
-<img width="1800" height="800" alt="Screenshot_20260824_183102_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/dfd2b24c-1772-4ae0-bf3e-38de7c4ad89b" />
+<img width="1600" height="800" alt="Screenshot_20260824_183102_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/dfd2b24c-1772-4ae0-bf3e-38de7c4ad89b" />
 
 
 ╔══════════════════════════༻🌑⭑🌒⭑🌓✶🌔✮🌕✮🌖✶🌗⭑🌘⭑🌑༺══════════════════════════╗
@@ -53,6 +53,6 @@ ____________________
 ︵︵୨୧︵︵⊹︵︵⊹︵︵୨୧︵︵⊹︵︵⊹︵︵୨୧︵︵⊹︵︵⊹︵︵୨୧︵︵⊹︵︵⊹︵︵୨୧︵︵⊹︵︵⊹︵︵୨୧︵︵⊹︵︵⊹︵︵⊹︵︵୨୧︵︵
 ╚══════════════════════════༻🌑⭑🌒⭑🌓✶🌔✮🌕✮🌖✶🌗⭑🌘⭑🌑༺══════════════════════════╝
 
-<img width="1800" height="800" alt="Screenshot_20260824_183040_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/4665fa0f-f61f-43e8-acec-3ed3723471e5" />
+<img width="1600" height="800" alt="Screenshot_20260824_183040_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/4665fa0f-f61f-43e8-acec-3ed3723471e5" />
 
 .꒰ঌ゛꒰"♫ **_ɪᴛ ꜰᴇᴇʟꜱ ʟɪᴋᴇ ᴀ ᴅʀᴇᴀᴍ. ᴀʀᴇ ᴡᴇ ꜰʀᴇᴇ_**? ♫. . ."꒱
