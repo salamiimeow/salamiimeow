@@ -53,6 +53,6 @@ ____________________
 ︵︵୨୧︵︵⊹︵︵⊹︵︵୨୧︵︵⊹︵︵⊹︵︵୨୧︵︵⊹︵︵⊹︵︵୨୧︵︵⊹︵︵⊹︵︵୨୧︵︵⊹︵︵⊹︵︵୨୧︵︵⊹︵︵⊹︵︵⊹︵︵୨୧︵︵
 ╚══════════════════════════༻🌑⭑🌒⭑🌓✶🌔✮🌕✮🌖✶🌗⭑🌘⭑🌑༺══════════════════════════╝
 
-<img width="890" height="400" alt="Screenshot_20260824_183040_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/4665fa0f-f61f-43e8-acec-3ed3723471e5" />
+<img width="736" height="417" alt="b28b23dd8683d1ac7ba893faa7a9c956" src="https://github.com/user-attachments/assets/92351977-e860-4acd-bbff-bcf2330b3790" />
 
 .꒰ঌ゛꒰"♫ **_ᴅᴏɴ'ᴛ ʙᴇʟɪᴇᴠᴇ ᴘᴀɪɴ, ᴅᴏɴ'ᴛ ʙᴇʟɪᴇᴠᴇ ᴛᴇᴀʀꜱ. ʏᴏᴜ ꜱᴀʏ ɪ'ʟʟ ꜰʀᴇᴇ ʏᴏᴜ, ᴡʜᴏ ᴛᴏʟᴅ ʏᴏᴜ ᴛʜᴀᴛ?_** ♫. . ."꒱ ᯓ★
