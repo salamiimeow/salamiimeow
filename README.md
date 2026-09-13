@@ -1,5 +1,5 @@
 
-꒰ঌ゛꒰"♫ **_ꜱᴛᴏᴘ ᴛᴀʟᴋɪɴɢ ᴀʙᴏᴜᴛ ᴛʜᴇ ᴏɴᴇ ᴛʜᴀᴛ ᴅᴏᴇꜱɴ'ᴛ ᴇxɪꜱᴛ. ᴅᴏᴇꜱɴ'ᴛ ᴇxɪꜱᴛ. ᴀɴʏᴍᴏʀᴇ. . ._** ♫. . ."꒱ ᯓ★
+꒰ঌ゛꒰"♫ **_ɪ ꜱᴄʀᴇᴀᴍᴇᴅ: ᴍᴀʏʙᴇ, ʏᴏᴜ'ʟʟ ʜᴇʟᴘ ᴍᴇ? ʜᴇʟᴘ ᴍᴇ..?_** ♫. . ."꒱ ᯓ★
 
 <img width="890" height="400" alt="Screenshot_20260824_183102_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/dfd2b24c-1772-4ae0-bf3e-38de7c4ad89b" />
 
