@@ -1,6 +1,6 @@
 
 ꒰ঌ゛꒰"♫ **_ꜱᴛᴏᴘ ᴛᴀʟᴋɪɴɢ ᴀʙᴏᴜᴛ ᴛʜᴇ ᴏɴᴇ ᴛʜᴀᴛ ᴅᴏᴇꜱɴ'ᴛ ᴇxɪꜱᴛ. ᴛʜᴇ ᴏɴᴇ ᴛʜᴀᴛ ᴅᴏᴇꜱɴ'ᴛ ᴇxɪꜱᴛ._** ♫. . ."꒱ ᯓ★
-<<img width="800" height="800" alt="Screenshot_20260912_171242_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/819c65e1-5196-43dc-89bb-4051f62f7860" />
+<<img width="1100" height="400" alt="Screenshot_20260912_171242_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/819c65e1-5196-43dc-89bb-4051f62f7860" />
 
 
 
