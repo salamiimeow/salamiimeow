@@ -1,6 +1,6 @@
 
 ꒰ঌ゛꒰"♫ **_ꜱᴛᴏᴘ ᴛᴀʟᴋɪɴɢ ᴀʙᴏᴜᴛ ᴛʜᴇ ᴏɴᴇ ᴛʜᴀᴛ ᴅᴏᴇꜱɴ'ᴛ ᴇxɪꜱᴛ. ᴛʜᴇ ᴏɴᴇ ᴛʜᴀᴛ ᴅᴏᴇꜱɴ'ᴛ ᴇxɪꜱᴛ._** ♫. . ."꒱ ᯓ★
-<img width="736" height="417" alt="64e46bc93f4376d4f9a5a09a719d0d2c" src="https://github.com/user-attachments/assets/da8e707a-3429-4571-9ac1-88df4ad8330c" />
+<img width="736" height="400" alt="64e46bc93f4376d4f9a5a09a719d0d2c" src="https://github.com/user-attachments/assets/da8e707a-3429-4571-9ac1-88df4ad8330c" />
 
 
 ╔══════════════════════════༻🌑⭑🌒⭑🌓✶🌔✮🌕✮🌖✶🌗⭑🌘⭑🌑༺══════════════════════════╗
