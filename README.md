@@ -1,7 +1,7 @@
 **𝗟𝗔𝗬𝗢𝗨𝗧 𝗜𝗡𝗧𝗘𝗡𝗗𝗘𝗗 𝗙𝗢𝗥 𝗟𝗔𝗣𝗧𝗢𝗣**◞ ᶻ 𝗓 𐰁
 
 ꒰ঌ゛꒰"♫ **_ꜱᴛᴏᴘ ᴛᴀʟᴋɪɴɢ ᴀʙᴏᴜᴛ ᴛʜᴇ ᴏɴᴇ ᴛʜᴀᴛ ᴅᴏᴇꜱɴ'ᴛ ᴇxɪꜱᴛ. ᴛʜᴇ ᴏɴᴇ ᴛʜᴀᴛ ᴅᴏᴇꜱɴ'ᴛ ᴇxɪꜱᴛ._** ♫. . ."꒱ ᯓ★
-<img width="735" height="499" alt="0048793eb947fc91a43594124db2f220" src="https://github.com/user-attachments/assets/552f13ea-ec93-4dc7-be7b-e5f603e30732" />
+<img width="736" height="414" alt="03298c580e85d54ab295d5b8068a0f53" src="https://github.com/user-attachments/assets/d74785e5-392e-45a1-b7b9-599f0b5ce389" />
 
 
 
@@ -56,6 +56,6 @@ ____________________
 ︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵
 ╚═══════════════════════════༻**♤⭑♡⭑♢✶♧✶♢⭑♡⭑♤**༺═══════════════════════════╝
 
-<img width="735" height="511" alt="867d8c4ed71f070fdef6109f0d982d2e" src="https://github.com/user-attachments/assets/171ce59d-5e92-4e98-969f-4196f16a7e11" />
+<img width="735" height="464" alt="c22d12ed2387da74bff8f311ddd6d48f" src="https://github.com/user-attachments/assets/175bda1a-95ed-4063-95ce-e977729b0228" />
 
 .꒰ঌ゛꒰"♫ **_ᴅᴏɴ'ᴛ ʙᴇʟɪᴇᴠᴇ ᴘᴀɪɴ, ᴅᴏɴ'ᴛ ʙᴇʟɪᴇᴠᴇ ᴛᴇᴀʀꜱ. ʏᴏᴜ ꜱᴀʏ ɪ'ʟʟ ꜰʀᴇᴇ ʏᴏᴜ, ᴡʜᴏ ᴛᴏʟᴅ ʏᴏᴜ ᴛʜᴀᴛ?_** ♫. . ."꒱ ᯓ★
