@@ -1,7 +1,7 @@
 **𝗟𝗔𝗬𝗢𝗨𝗧 𝗜𝗡𝗧𝗘𝗡𝗗𝗘𝗗 𝗙𝗢𝗥 𝗟𝗔𝗣𝗧𝗢𝗣**◞ ᶻ 𝗓 𐰁
 
 ꒰ঌ゛꒰"♫ **_ᴄᴏᴍᴇ ᴡɪᴛʜ ᴍᴇ, ᴡʜᴇʀᴇ ᴛʜᴇ ꜰʟᴏᴡᴇʀꜱ ʙʟᴏᴏᴍ, ʙᴜᴛ ᴛʜᴇ ꜱᴇᴀꜱᴏɴꜱ ɴᴇᴠᴇʀ ᴄʜᴀɴɢᴇ._** ♫. . ."꒱ ᯓ★
-<img width="736" height="457" alt="7dac23e8182c8bfe4a3aa08548a858f4" src="https://github.com/user-attachments/assets/b4b196ee-0d5f-4679-b931-bfcfec3bf4aa" />
+<img width="2340" height="819" alt="Screenshot_20261102_192705_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/4d9db0f2-1d17-4a84-bbd6-493785955482" />
 
 
 
