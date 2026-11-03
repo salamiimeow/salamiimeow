@@ -70,6 +70,6 @@ ____________________
 ︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵
 ╚═════════════════════════༻**♤⭑♡⭑♢⭑♧✶▽✶♧⭑♢⭑♡⭑♤**༺═════════════════════════╝
 
-<img width="765" height="457" alt="Screenshot_20261102_192719_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/c5e007df-d9ac-441a-8bee-6625d82843ec" />
+<img width="740" height="440" alt="Screenshot_20261102_192719_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/c5e007df-d9ac-441a-8bee-6625d82843ec" />
 
 .꒰ঌ゛꒰"♫ **ᴅʀᴏᴘ ʏᴏᴜʀ ʙʀᴀɪɴ, ʀᴜɴ ɪɴᴛᴏ ᴛʜᴇ ɢʟᴏᴏᴍ, ᴛʜᴇɴ ᴡᴇ, ᴡᴇ ᴄᴀɴ ʜɪᴅᴇᴀᴡᴀʏ._** ♫. . ."꒱ ᯓ★
