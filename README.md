@@ -4,7 +4,7 @@
 <img width="660" height="360" alt="hollyberry-cookie-eternal-sugar-cookie" src="https://github.com/user-attachments/assets/6b79b058-821c-4193-a169-629fa4d1eacb" />
 
 
-╔══════════════════════༻**♤⭑▽⭑♢⭑♧✶♡✶♧⭑♢⭑▽⭑♤**༺══════════════════════╗
+╔══════════════════════༻**♤⭑▽⭑♢⭑♧✶♡✶♧⭑♢⭑▽⭑♤**༺══════════════════════╗ <img width="350" height="358" alt="eternal-sugar-cookie-cookie-run-kingdom" src="https://github.com/user-attachments/assets/da4ff7d8-fc8c-4cac-b61b-a955662b6699" />
 
 ✶︶︶⊹︶︶⊹︶︶✶︶︶⊹︶︶⊹︶︶✶︶︶⊹︶︶⊹︶︶✶︶︶⊹︶︶⊹︶︶✶︶︶⊹︶︶⊹︶︶✶︶︶⊹︶︶⊹︶︶✶
 
