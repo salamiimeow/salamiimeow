@@ -67,6 +67,6 @@ ____________________
 ︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵
 ╚═════════════════════════༻**♤⭑▽⭑♢⭑♧✶♡✶♧⭑♢⭑▽⭑♤**༺═════════════════════════╝
 
-<img width="498" height="281" alt="cookie-run-cookie-run-kingdom" src="https://github.com/user-attachments/assets/3613d76c-6cb5-4ee5-96d9-a36a32851557" />
+<img width="660" height="360" alt="cookie-run-cookie-run-kingdom" src="https://github.com/user-attachments/assets/3613d76c-6cb5-4ee5-96d9-a36a32851557" />
 
 .꒰ঌ゛꒰"♫ **_ᴏʜ, ɪ'ᴅ ʜᴀᴛᴇ ᴛᴏ ꜱᴇᴇ ᴀɴᴏᴛʜᴇʀ ᴛʀᴀɢᴇᴅʏ, ᴏʜ, ɪ'ᴠᴇ ʜᴀᴅ ᴇɴᴏᴜɢʜ, ᴏꜰ ᴀʟᴡᴀʏꜱ ɢɪᴠɪɴ', ᴡᴀᴛᴄʜɪɴ', ᴡɪꜱʜɪɴ'. ʙᴏᴡ ᴀɴᴅ ᴋɪꜱꜱ ᴛʜᴇ ʀɪɴɢ._** ♫. . ."꒱ ᯓ★
