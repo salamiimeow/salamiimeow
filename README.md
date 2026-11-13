@@ -35,6 +35,7 @@ ____________________
 
 ゛◜ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ◞
 ____________________
+<img width="60" height="60" alt="eternal-sugar-cookie-cookie-run-kingdom (1)" src="https://github.com/user-attachments/assets/d12d90b3-fc21-48ca-81d0-32103fc113b7" />
 **𝐊𝐈𝐍𝐒**
 
 ⁠❥ ꒰゛◜ᴡʜɪᴛᴇ ʟɪʟʏ ᴄᴏᴏᴋɪᴇ (ᴄʀᴋ)◞
@@ -62,7 +63,7 @@ ____________________
 ꒰ঌ゛꒰⭑ **ᴘᴏɴʏ ᴛᴏᴡɴꜱ ʟɪʟɪᴛʜ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ** !! [@pt-walk-of-fame title-town](https://github.com/pt-walk-of-fame) (˶˃ ᵕ ˂˶)◞♡
 ____________________
 
-<img width="50" height="50" alt="eternal-sugar-cookie-cookie-run-kingdom (1)" src="https://github.com/user-attachments/assets/2a637766-ad89-49e5-a265-95d4f3209697" />
+
 ◜**𝗧𝗛𝗘𝗥𝗘'𝗦 𝗠𝗢𝗥𝗘 !! 𝗦𝗛𝗜𝗣𝗦, 𝗙𝗔𝗖𝗧𝗦 & 𝗗𝗘𝗕𝗨𝗡𝗞𝗜𝗡𝗚 𝗠𝗜𝗦𝗖𝗢𝗡𝗖𝗘𝗣𝗧𝗜𝗢𝗡𝗦 𝗢𝗡 𝗠𝗬𝗧𝗛𝗦** !! જ⁀➴ ◞✰⋆˖
 
 ✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶
