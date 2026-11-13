@@ -1,7 +1,7 @@
 **𝗟𝗔𝗬𝗢𝗨𝗧 𝗜𝗡𝗧𝗘𝗡𝗗𝗘𝗗 𝗙𝗢𝗥 𝗟𝗔𝗣𝗧𝗢𝗣**◞ ᶻ 𝗓 𐰁
 
-꒰ঌ゛꒰"♫ **_ɪ'ᴠᴇ ʙᴇᴇɴ ᴛʜʀᴏᴜɢʜ ᴇɴᴏᴜɢʜ. ɪ ᴅЕꜱᴇʀᴠᴇ ᴜɴᴅʏɪɴɢ, ꜱᴇʀᴘЕɴᴛɪɴɪɴɢ ʟᴏᴠᴇ! ᴄᴀʟʟ ᴍᴇ ᴍᴀᴊᴇꜱᴛʏ..._** ♫. . ."꒱ ᯓ★
-<img width="600" height="340" alt="hollyberry-cookie-eternal-sugar-cookie" src="https://github.com/user-attachments/assets/6b79b058-821c-4193-a169-629fa4d1eacb" />
+꒰ঌ゛꒰"♫ **_ɪ'ᴠᴇ ʙᴇᴇɴ ᴛʜʀᴏᴜɢʜ ᴇɴᴏᴜɢʜ. ɪ ᴅЕꜱᴇʀᴠᴇ ᴜɴᴅʏɪɴɢ, ꜱᴇʀᴘᴇɴᴛɪɴɪɴɢ ʟᴏᴠᴇ! ᴄᴀʟʟ ᴍᴇ ᴍᴀᴊᴇꜱᴛʏ..._** ♫. . ."꒱ ᯓ★
+<img width="650" height="340" alt="hollyberry-cookie-eternal-sugar-cookie" src="https://github.com/user-attachments/assets/6b79b058-821c-4193-a169-629fa4d1eacb" />
 
 
 ╔═════════════════════════༻**♤⭑▽⭑♢⭑♧✶♡✶♧⭑♢⭑▽⭑♤**༺═════════════════════════╗
