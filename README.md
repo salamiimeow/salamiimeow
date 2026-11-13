@@ -35,8 +35,7 @@ ____________________
 
 ゛◜ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ◞
 ____________________
-<img width="50" height="50" alt="eternal-sugar-cookie-eternal-sugar" src="https://github.com/user-attachments/assets/805cd7b7-04fd-41e5-8348-f9b25f50ee92" />
-**𝐊𝐈𝐍𝐒**
+<img width="50" height="50" alt="eternal-sugar-cookie-eternal-sugar" src="https://github.com/user-attachments/assets/805cd7b7-04fd-41e5-8348-f9b25f50ee92" />  **𝐊𝐈𝐍𝐒**
 
  
 ⁠❥ ꒰゛◜ᴡʜɪᴛᴇ ʟɪʟʏ ᴄᴏᴏᴋɪᴇ (ᴄʀᴋ)◞
