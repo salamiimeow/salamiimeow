@@ -35,7 +35,7 @@ ____________________
 
 ゛◜ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ◞
 ____________________
-<img width="60" height="60" alt="eternal-sugar-cookie-cookie-run-kingdom (1)" src="https://github.com/user-attachments/assets/d12d90b3-fc21-48ca-81d0-32103fc113b7" />
+
 **𝐊𝐈𝐍𝐒**
 
 ⁠❥ ꒰゛◜ᴡʜɪᴛᴇ ʟɪʟʏ ᴄᴏᴏᴋɪᴇ (ᴄʀᴋ)◞
