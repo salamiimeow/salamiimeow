@@ -1,8 +1,7 @@
 **𝗟𝗔𝗬𝗢𝗨𝗧 𝗜𝗡𝗧𝗘𝗡𝗗𝗘𝗗 𝗙𝗢𝗥 𝗟𝗔𝗣𝗧𝗢𝗣**◞ ᶻ 𝗓 𐰁
 
 ꒰ঌ゛꒰"♫ **_ɪ'ᴠᴇ ʙᴇᴇɴ ᴛʜʀᴏᴜɢʜ ᴇɴᴏᴜɢʜ. ɪ ᴅЕꜱᴇʀᴠᴇ ᴜɴᴅʏɪɴɢ, ꜱᴇʀᴘЕɴᴛɪɴɪɴɢ ʟᴏᴠᴇ! ᴄᴀʟʟ ᴍᴇ ᴍᴀᴊᴇꜱᴛʏ..._** ♫. . ."꒱ ᯓ★
-<img width="740" height="440" alt="Screenshot_20261102_192705_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/e6af54e0-66ac-418e-beac-e84993623049" />
-
+<img width="498" height="284" alt="hollyberry-cookie-eternal-sugar-cookie" src="https://github.com/user-attachments/assets/6b79b058-821c-4193-a169-629fa4d1eacb" />
 
 
 ╔═════════════════════════༻**♤⭑▽⭑♢⭑♧✶♡✶♧⭑♢⭑▽⭑♤**༺═════════════════════════╗
@@ -68,6 +67,6 @@ ____________________
 ︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵
 ╚═════════════════════════༻**♤⭑▽⭑♢⭑♧✶♡✶♧⭑♢⭑▽⭑♤**༺═════════════════════════╝
 
-<img width="740" height="440" alt="Screenshot_20261102_192719_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/c5e007df-d9ac-441a-8bee-6625d82843ec" />
+<img width="498" height="281" alt="cookie-run-cookie-run-kingdom" src="https://github.com/user-attachments/assets/3613d76c-6cb5-4ee5-96d9-a36a32851557" />
 
 .꒰ঌ゛꒰"♫ **_ᴏʜ, ɪ'ᴅ ʜᴀᴛᴇ ᴛᴏ ꜱᴇᴇ ᴀɴᴏᴛʜᴇʀ ᴛʀᴀɢᴇᴅʏ, ᴏʜ, ɪ'ᴠᴇ ʜᴀᴅ ᴇɴᴏᴜɢʜ, ᴏꜰ ᴀʟᴡᴀʏꜱ ɢɪᴠɪɴ', ᴡᴀᴛᴄʜɪɴ', ᴡɪꜱʜɪɴ'. ʙᴏᴡ ᴀɴᴅ ᴋɪꜱꜱ ᴛʜᴇ ʀɪɴɢ._** ♫. . ."꒱ ᯓ★
