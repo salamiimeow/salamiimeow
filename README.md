@@ -1,7 +1,7 @@
 **𝗟𝗔𝗬𝗢𝗨𝗧 𝗜𝗡𝗧𝗘𝗡𝗗𝗘𝗗 𝗙𝗢𝗥 𝗟𝗔𝗣𝗧𝗢𝗣**◞ ᶻ 𝗓 𐰁
 
 ꒰ঌ゛꒰"♫ **_ɪ'ᴠᴇ ʙᴇᴇɴ ᴛʜʀᴏᴜɢʜ ᴇɴᴏᴜɢʜ. ɪ ᴅᴇꜱᴇʀᴠᴇ ᴜɴᴅʏɪɴɢ, ꜱᴇʀᴘᴇɴᴛɪɴɪɴɢ ʟᴏ-ᴀʜ-ᴠᴇ! ᴄᴀʟʟ ᴍᴇ ᴍᴀᴊᴇꜱᴛʏ._** ♫. . ."꒱ ᯓ★
-<img width="660" height="360" alt="hollyberry-cookie-eternal-sugar-cookie" src="https://github.com/user-attachments/assets/6b79b058-821c-4193-a169-629fa4d1eacb" />
+<img width="660" height="360" alt="swan-princess-cartoon" src="https://github.com/user-attachments/assets/0d659ce7-0982-45db-8102-537419882c20" />
 
 
 ╔══════════════════════༻**♤⭑▽⭑♢⭑♧✶♡✶♧⭑♢⭑▽⭑♤**༺══════════════════════╗
