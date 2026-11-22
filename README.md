@@ -69,7 +69,7 @@ ____________________
 ✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶
 ╚══════════════════════༻**♤⭑▽⭑♢⭑♧✶♡✶♧⭑♢⭑▽⭑♤**༺══════════════════════╝
 
-<img width="660" height="360" alt="cookie-run-cookie-run-kingdom" src="https://github.com/user-attachments/assets/3613d76c-6cb5-4ee5-96d9-a36a32851557" />
+<img width="680" height="360" alt="young-odette" src="https://github.com/user-attachments/assets/708b2b03-d12f-4be6-9e9d-1a4c2126ec00" />
 
 ꒰ঌ゛꒰"♫ **_ᴏʜ, ɪ'ᴅ ʜᴀᴛᴇ ᴛᴏ ꜱᴇᴇ ᴀɴᴏᴛʜᴇʀ ᴛʀᴀɢᴇᴅʏ, ᴏʜ, ɪ'ᴠᴇ ʜᴀᴅ ᴇɴᴏᴜɢʜ, ᴏꜰ ᴀʟᴡᴀʏꜱ ɢɪᴠɪɴ', ᴡᴀᴛᴄʜɪɴ', ᴡɪꜱʜɪɴ'._** ♫. . ."꒱ ᯓ★
 
