@@ -69,7 +69,7 @@ ____________________
 ✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶
 ╚══════════════════════༻**♤⭑▽⭑♢⭑♧✶♡✶♧⭑♢⭑▽⭑♤**༺══════════════════════╝
 
-<img width="680" height="360" alt="swan-princess-odette" src="https://github.com/user-attachments/assets/8fb4ed8a-3cb7-470d-8a07-883ee2abbb50" />
+<img width="675" height="360" alt="swan-princess-odette" src="https://github.com/user-attachments/assets/8fb4ed8a-3cb7-470d-8a07-883ee2abbb50" />
 
 ꒰ঌ゛꒰"♫ **_ꜰᴀʀ ʟᴏɴɢᴇʀ ᴛʜᴀɴ ꜰᴏʀᴇᴠᴇʀ, ɪ ꜱᴡᴇᴀʀ ᴛʜᴀᴛ ɪ'ʟʟ ʙᴇ ᴛʀᴜᴇ. ɪ'ᴠᴇ ᴍᴀᴅᴇ ᴀɴ ᴇᴠᴇʀʟᴀꜱᴛɪɴɢ ᴠᴏᴡ, ᴛᴏ ꜰɪɴᴅ ᴀ ᴡᴀʏ ᴛᴏ ʏᴏᴜ_** ♫. . ."꒱ ᯓ★
 
