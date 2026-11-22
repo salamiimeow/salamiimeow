@@ -8,7 +8,7 @@
 
 ✶︶︶⊹︶︶⊹︶︶✶︶︶⊹︶︶⊹︶︶✶︶︶⊹︶︶⊹︶︶✶︶︶⊹︶︶⊹︶︶✶︶︶⊹︶︶⊹︶︶✶︶︶⊹︶︶⊹︶︶✶  
 
-<img width="50" height="50" alt="eternal-sugar-cookie-cookie-run-kingdom" src="https://github.com/user-attachments/assets/da4ff7d8-fc8c-4cac-b61b-a955662b6699" /> **𝗔𝗕𝗢𝗨𝗧 𝗠𝗘** જ⁀➴ 
+ **𝗔𝗕𝗢𝗨𝗧 𝗠𝗘** જ⁀➴ 
 
 
 ꒰ঌ゛᭝ ꒰18 ʏʀꜱ ⸝⸝ 1/11/08꒱◞✰⋆˖
@@ -35,7 +35,7 @@ ____________________
 
 ゛◜ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ◞
 ____________________
-<img width="50" height="50" alt="eternal-sugar-cookie-eternal-sugar" src="https://github.com/user-attachments/assets/805cd7b7-04fd-41e5-8348-f9b25f50ee92" />  **𝐊𝐈𝐍𝐒**
+ **𝐊𝐈𝐍𝐒**
 
  
 ⁠❥ ꒰゛◜ᴡʜɪᴛᴇ ʟɪʟʏ ᴄᴏᴏᴋɪᴇ (ᴄʀᴋ)◞
