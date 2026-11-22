@@ -1,7 +1,7 @@
 **𝗟𝗔𝗬𝗢𝗨𝗧 𝗜𝗡𝗧𝗘𝗡𝗗𝗘𝗗 𝗙𝗢𝗥 𝗟𝗔𝗣𝗧𝗢𝗣**◞ ᶻ 𝗓 𐰁
 
 ꒰ঌ゛꒰"♫ **_ɪ'ᴠᴇ ʙᴇᴇɴ ᴛʜʀᴏᴜɢʜ ᴇɴᴏᴜɢʜ. ɪ ᴅᴇꜱᴇʀᴠᴇ ᴜɴᴅʏɪɴɢ, ꜱᴇʀᴘᴇɴᴛɪɴɪɴɢ ʟᴏ-ᴀʜ-ᴠᴇ! ᴄᴀʟʟ ᴍᴇ ᴍᴀᴊᴇꜱᴛʏ._** ♫. . ."꒱ ᯓ★
-<img width="660" height="360" alt="swan-princess" src="https://github.com/user-attachments/assets/00d111d1-8f06-49fe-bfa4-f73b126466c2" />
+<img width="675" height="360" alt="swan-princess" src="https://github.com/user-attachments/assets/00d111d1-8f06-49fe-bfa4-f73b126466c2" />
 
 
 ╔══════════════════════༻**♤⭑▽⭑♢⭑♧✶♡✶♧⭑♢⭑▽⭑♤**༺══════════════════════╗
