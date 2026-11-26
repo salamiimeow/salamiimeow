@@ -1,7 +1,7 @@
 **𝗟𝗔𝗬𝗢𝗨𝗧 𝗜𝗡𝗧𝗘𝗡𝗗𝗘𝗗 𝗙𝗢𝗥 𝗟𝗔𝗣𝗧𝗢𝗣**◞ ᶻ 𝗓 𐰁
 
 ꒰ঌ゛꒰"♫ **_ꜱᴜʀᴇ ᴀꜱ ᴛʜᴇ ᴅᴀᴡɴ ʙʀɪɴɢꜱ ᴛʜᴇ ꜱᴜɴʀɪꜱᴇ, ᴡᴇ'ᴠᴇ ᴀɴ ᴜɴꜱʜᴀᴋᴀʙʟᴇ ʙᴏɴᴅ! ᴅᴇꜱᴛɪɴᴇᴅ ᴛᴏ ʟᴀꜱᴛ ꜰᴏʀ ᴀ ʟɪꜰᴇᴛɪᴍᴇ ᴀɴᴅ ʙᴇʏᴏɴᴅ!_** ♫. . ."꒱ ᯓ★
-<img width="675" height="360" alt="swan-princess" src="https://github.com/user-attachments/assets/00d111d1-8f06-49fe-bfa4-f73b126466c2" />
+<img width="675" height="360" alt="shadow-milk-cookie-fount-of-knowledge" src="https://github.com/user-attachments/assets/24f802ac-2ebd-419d-9565-b3c870c3b284" />
 
 
 ╔════════════════════════༻⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔༺════════════════════════╗
