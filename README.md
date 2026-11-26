@@ -55,7 +55,7 @@ ____________________
 ✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶︵︵⊹︵︵⊹︵︵✶
 ╚════════════════════════༻⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔༺════════════════════════╝
 
-<img width="675" height="360" alt="swan-princess-odette" src="https://github.com/user-attachments/assets/8fb4ed8a-3cb7-470d-8a07-883ee2abbb50" />
+<img width="675" height="360" alt="shadow-milk-cookie" src="https://github.com/user-attachments/assets/f99a6933-8480-49b1-bac5-93f0083d918f" />
 
 ꒰ঌ゛꒰"♫ **_ꜰᴀʀ ʟᴏɴɢᴇʀ ᴛʜᴀɴ ꜰᴏʀᴇᴠᴇʀ, ɪ ꜱᴡᴇᴀʀ ᴛʜᴀᴛ ɪ'ʟʟ ʙᴇ ᴛʀᴜᴇ. ɪ'ᴠᴇ ᴍᴀᴅᴇ ᴀɴ ᴇᴠᴇʀʟᴀꜱᴛɪɴɢ ᴠᴏᴡ, ᴛᴏ ꜰɪɴᴅ ᴀ ᴡᴀʏ ᴛᴏ ʏᴏᴜ_** ♫. . ."꒱ ᯓ★
 
